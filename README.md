@@ -1,3 +1,5 @@
-i know nothing about game development or anything coding related and I love to skid :)
+professional skidder since 2019 :)
 
-discord: ziot2x
+c# dev/c++ student
+
+http://ziot.site
