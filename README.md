@@ -1,5 +1,5 @@
-professional skidder since 2019 :)
+fullstack software developer.
 
-c# dev/c++ student
+c++ / java student
 
 http://ziot.site
